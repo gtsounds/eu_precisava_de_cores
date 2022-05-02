@@ -1,0 +1,2 @@
+# Eu precisava de cores
+O mundo está acabando. Capitalismo tardio, big techs extremamente poderosas, concentração de riqueza, crise climática incontornável, ascensão do fascismo, crise imigratória, conflitos armados, tensões políticas, relações interpessoais intermediadas por computadores e toda a sorte, ou melhor, falta de sorte de problemas. Não bastasse isso, uma pandemia que já vitimou mais de 5 milhões de pessoas mundo afora. Desculpa aparecer assim do nada. Desculpa ser o porta-voz da tragédia anunciada. Eu precisava de cores.
